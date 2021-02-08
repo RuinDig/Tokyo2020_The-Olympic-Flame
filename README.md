@@ -19,5 +19,5 @@
 
 # Tokyo 2020 Olympic Flame
 <p>The Tokyo 2020 Olympic Flame is a guiding light for the people of Japan and the rest of the world to sustain them during the most challenging of times.</p>
-<p>Although modest in the stature, the Olympic Flame offers a potentvision of the re-scheduled Tokyo 2020 Olympic Games, uniting the globe in excellence, friendship and respect.</p>
+<p>Although modest in the stature, the Olympic Flame offers a potent vision of the re-scheduled Tokyo 2020 Olympic Games, uniting the globe in excellence, friendship and respect.</p>
 <p>Tokyo 2020 Olympic Flame ofers hope for all built around decades, centuries, even millennia of Olympic heritage, uniting athletes and communities in peace and tolerance.</p>
