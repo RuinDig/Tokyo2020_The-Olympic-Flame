@@ -3,7 +3,11 @@
 
 ![Tokyo2020_The-Olympic-Flame_01](https://user-images.githubusercontent.com/20723919/107175972-85fef900-6a11-11eb-8174-9c328c6e70f8.jpg)
 
+ランタンに灯る聖火
+
 ![Tokyo2020_The-Olympic-Flame_02](https://user-images.githubusercontent.com/20723919/107175974-87c8bc80-6a11-11eb-87ed-a61b2a730c6e.jpg)
+
+小さく灯る聖火
 
 ![Tokyo2020_The-Olympic-Flame_03](https://user-images.githubusercontent.com/20723919/107175975-87c8bc80-6a11-11eb-9fde-7409dca20d46.jpg)
 
