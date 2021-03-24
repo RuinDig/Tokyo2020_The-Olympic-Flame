@@ -11,6 +11,8 @@
 
 ![Tokyo2020_The-Olympic-Flame_03](https://user-images.githubusercontent.com/20723919/107175975-87c8bc80-6a11-11eb-9fde-7409dca20d46.jpg)
 
+聖火の展示
+
 ![Tokyo2020_The-Olympic-Flame_04](https://user-images.githubusercontent.com/20723919/107175977-88615300-6a11-11eb-9999-48282cfe5eed.jpg)
 
 ![Tokyo2020_The-Olympic-Flame_05](https://user-images.githubusercontent.com/20723919/107175978-88f9e980-6a11-11eb-9577-21629deeb810.jpg)
